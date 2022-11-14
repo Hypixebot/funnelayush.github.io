@@ -1,1 +1,0 @@
-# funnelayush.github.io
